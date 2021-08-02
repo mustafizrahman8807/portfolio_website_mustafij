@@ -6,4 +6,4 @@ Don't forget to join the channel for more videos like this. [Bedimcode](https://
 
 ![Resume cv](/preview.png)
 
-**finished 1:01:48**
+**finished 1:12:25**
